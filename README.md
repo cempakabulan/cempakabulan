@@ -1,1 +1,5 @@
-<img width="400" height="301" alt="EAT EAT EAT" src="https://github.com/user-attachments/assets/49a3caad-3499-479d-84ec-b28c0e68fd46" />
+<p align="center"> YOOOOOOOOOOOO MY FAVORITE SHIPPP YOOOOOOOOOOOOOOOOOOOOOOOOOOOOOO</p>
+<p align="center">
+<img width="200" height="114" alt="love-of-the-sn-malueslots" src="https://github.com/user-attachments/assets/d3bdbf9e-7bc7-4142-91ae-294f5f71cf46" />
+<img width="220" height="205" alt="malueslots-loveofthesn" src="https://github.com/user-attachments/assets/f8285269-b3bf-4451-b256-31c0491026a2" />
+</p>
