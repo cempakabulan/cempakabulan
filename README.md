@@ -11,4 +11,4 @@
   <img width="220" height="177" alt="malueslots-frown" src="https://github.com/user-attachments/assets/a148f41a-170a-4ba9-a9e4-96e54913125b" />
 <img width="245" height="177" alt="malueslots-malues" src="https://github.com/user-attachments/assets/1d9e3308-b218-4466-9d36-9c778734db27" />
 <img width="200" height="200" alt="malueslots-lots" src="https://github.com/user-attachments/assets/cd25f580-115d-4216-8cfb-64c69a55e21d" />
-<img width="220" height="220" alt="love-of-the-sn-malueslots" src="https://github.com/user-attachments/assets/820b01df-0867-4056-9200-34039260fd80" />
+
