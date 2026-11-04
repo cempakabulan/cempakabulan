@@ -1,4 +1,4 @@
-<p align="center"> <a href="https://github.com/allie8253/">main</a></p>
+<p align="center"> <a href="https://github.com/kawaiinyaa/">main</a></p>
 <p align="center"> YOOOOOOOOOOOO MY FAVORITE SHIPPP YOOOOOOOOOOOOOOOOOOOOOOOOOOOOOO</p>
 <p align="center">
 <img width="350" height="214" alt="love-of-the-sn-malueslots" src="https://github.com/user-attachments/assets/d3bdbf9e-7bc7-4142-91ae-294f5f71cf46" />
